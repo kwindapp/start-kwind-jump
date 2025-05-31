@@ -147,7 +147,7 @@ T-Echo WITH CUSTOM CASE ???? !!!!!!
 
 https://lilygo.cc/products/t-echo-lilygo?_pos=13&_sid=b0fec331c&_ss=r
 
-![IMG_0545](https://github.com/user-attachments/assets/4ae474a5-c8a6-448d-b466-69d2ad91064e)
+
 ![IMG_0557](https://github.com/user-attachments/assets/77837a5c-b315-45c8-9457-86fa07aa6970)
 
 
